@@ -12,6 +12,7 @@ About Kamonvan Puttapirat
 -
 
 ## Get connected
-Facebook: ...
+Mobile Phone : 0869082288
+
 
 -----
